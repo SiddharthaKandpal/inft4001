@@ -103,3 +103,9 @@ W0474724
 💞️ I’m looking to collaborate on ... -projects to help improve and develop my skills-
 📫 How to reach me ... -aishaakinyera@gmail.com-
 
+👋 Hi, I’m @Sid
+👀 I’m interested in gaming,anime,podcasts and cosmology
+🌱 I’m currently learning  - Business Intelligence and Analytics 
+💞️ I’m looking to collaborate on ... -Projects and sharing knowledge in different domains
+📫 How to reach me ... -W0482544@nscc.ca-
+
